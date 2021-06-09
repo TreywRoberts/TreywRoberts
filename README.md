@@ -14,7 +14,7 @@ When it comes to coding I have skills in:
   Python
   
 If you are looking to coloabarte with me you can reach me at:
-  LinkedIn: https://www.linkedin.com/in/trey-roberts-818694206/
+  LinkedIn: https://www.linkedin.com/in/treywroberts/
   Email: TreywRoberts@gmail.com
   
 Thanks again!
